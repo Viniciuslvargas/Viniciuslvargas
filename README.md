@@ -1,5 +1,5 @@
 # 💫 SOBRE MIM:
-- Vinicius Lopes Vargas 😎<br>- 31/12/2006 🎂<br>- São José, SC. 🌊<br>- Cursando Desenvolvimento de Sistemas/Ensino médio 💻<br>- Portfolio: https://sites.google.com/estudante.sesisenai.org.br/viniciuslopesvargas/p%C3%A1gina-inicial
+- Vinicius Lopes Vargas 😎<br>- 31/12/2006 🎂<br>- São José, SC. 🌊<br>- Cursando Desenvolvimento de Sistemas/Ensino médio 💻<br>- 
 
 
 ## 🌐 Socials:
